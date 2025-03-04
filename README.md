@@ -8,4 +8,5 @@ teenage girl - cherrr glazerr
 
 rye irl
 
-![IMG_3717](https://github.com/user-attachments/assets/41c6f32a-4e96-48ca-84c1-dd173b96f407)
+
+![IMG_0182](https://github.com/user-attachments/assets/3c8a1a00-936c-4547-b249-34bb4795e9d4)
