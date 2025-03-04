@@ -1,10 +1,10 @@
-greetings!! 
+howdy
 
-my name is vemi,or ori,or simply,mike!
+my name is mike or ori 
 
-multifandommmm 
+multifandom
 
-teenage girl - cherrr glazerr
+teenage girl - cherry glazerr
 
 rye irl
 
