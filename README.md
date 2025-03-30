@@ -6,6 +6,7 @@ multifandom
 
 teenage girl - cherry glazerr
 
-rye,mizi&kyoko irl 
+licorice cookie irl
 
-![IMG_0239](https://github.com/user-attachments/assets/2c2d5d76-5a99-4841-bd36-dd054885a6af)
+![IMG_0367](https://github.com/user-attachments/assets/cc6387fd-fa7f-47c3-82a8-3ecced14c2b5)
+
