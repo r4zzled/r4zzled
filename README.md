@@ -6,7 +6,7 @@ multifandom
 
 teenage girl - cherry glazerr
 
-licorice cookie & yatta 
+licorice cookie & yatta irl
 
 ![IMG_1185](https://github.com/user-attachments/assets/b4598c06-64e3-4027-9311-703bd2c835e8)
 
