@@ -8,5 +8,5 @@ teenage girl - cherry glazerr
 
 licorice cookie & yatta 
 
-![IMG_0871](https://github.com/user-attachments/assets/dabdcf71-7704-4ada-a09f-8b400f30438e)
+![IMG_1185](https://github.com/user-attachments/assets/b4598c06-64e3-4027-9311-703bd2c835e8)
 
