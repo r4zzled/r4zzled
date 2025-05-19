@@ -1,3 +1,5 @@
+when u became a stranger ( stranger ) /lyr
+
 howdy
 
 my name is mike or ori 
