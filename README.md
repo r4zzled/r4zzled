@@ -1,3 +1,4 @@
+
 when u became a stranger ( stranger ) /lyr
 
 howdy
@@ -10,5 +11,5 @@ teenage girl - cherry glazerr
 
 licorice cookie & yatta irl
 
-![IMG_1185](https://github.com/user-attachments/assets/b4598c06-64e3-4027-9311-703bd2c835e8)
+![IMG_1325](https://github.com/user-attachments/assets/62b7b1e1-2afb-4746-9c7d-e6173503b835)
 
